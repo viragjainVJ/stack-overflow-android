@@ -15,3 +15,5 @@ https://www.linkedin.com/in/viragjain-vj/
 Follow me on Twitter for the latest Update:
 
 https://twitter.com/ViragJain_VJ
+
+Note: Suggest the issues and updates to be madde in project to make it more efficient. It will be a great help.
